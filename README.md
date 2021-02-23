@@ -1,3 +1,4 @@
 # my-first-repository
 ![Profiel foto](https://previews.dropbox.com/p/thumb/ABH4UhUlA6pyfwYZQRfSgAXAuIIR9PIzkqVCEZHsSCqgVWcKFFXJmjrufHcsQLRayqcJOWr4sHNvksLDwmHj3oHq8TqAuABUfJnoRDNauWH07Mcn28QM_Q6gC4T_BATUKkmQ_vN-uyCIdon7OAsk5zeks7IsoeGg-j0EScz2ITXnF6dJzsnM-xOpd9uJ4z3KoVXT2Xara2qJBz4P-LVnMsRBgeiqW2Oq5_uCE8pDB8IujMiIGAtIlyzZeYbrgvW4te8SK5dFW60dw6jnvXdZCNI9jVlzQYIsnXctGf5mIEn_KduPGo3wWrVHZZ8h2XACuqSmghHqBtoHncTQArzeb-GFjyMyQWXjDwKqkaS0J3BidA/p.jpeg?size=2048x1536&size_mode=3)
 [Link naar Zuyd Hogeschool](https://zuyd.nl)
+[Imgur](https://imgur.com/lD60enN)
